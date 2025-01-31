@@ -11,3 +11,5 @@ Flight Risk 𝟸𝟶𝟸𝟻 | Flight Risk 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕
 𝙽é𝚣𝚍 𝚘𝚗𝚕𝚒𝚗𝚎
 
 Flight Risk
+
+𝟸𝟶𝟸𝟻 𝚓𝚊𝚗𝚞á𝚛 31 . 𝟷𝟷𝟶 𝚙𝚎𝚛𝚌 . 𝚑𝚘𝚛𝚛𝚘𝚛
