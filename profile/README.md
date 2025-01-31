@@ -1,4 +1,4 @@
-## V𝙸D𝙴A ~ Flight Risk ((2025))
+## V𝙸D𝙴A ~ Flight Risk ((2025)) T𝚎lj𝚎s F𝚒lm M𝚊gy𝚊rul O𝚗l𝚒n𝚎
 
 # .github
 
